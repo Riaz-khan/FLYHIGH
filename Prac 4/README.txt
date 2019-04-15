@@ -10,3 +10,7 @@ ok
 
 Testing history check
 Zulkar please update
+
+Duke- All the individual task has been completed and submitted. 
+
+Style guide has be up here soon.
