@@ -16,3 +16,5 @@ Duke- All the individual task has been completed and submitted.
 Style guide has be up here soon.
 
 Style guide has been uploaded. Good job guys!
+Good effort guys
+Thanks
